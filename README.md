@@ -1,1 +1,0 @@
-# kawane-shop
